@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning PYTHON,and soon learningc++
 - 💞️ I’m looking to collaborate on my future projects
 - 📫 How to reach me YOU DONT!
-- ⚡ Fun fact: freee palestine
+- ⚡ Fun fact: israel IS NOT A COUNTRY,its AN OCCUPATION
 
 <!---
 OUssiUDBmE/OUssiUDBmE is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
